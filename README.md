@@ -5,3 +5,7 @@
 ![3073f4dca2f4b9313523b84935d350e9](https://github.com/user-attachments/assets/1a74a7c7-e52c-4db9-8485-f305e5deccee)
 ![43018dca2f005fb21df5b0b8830533f7](https://github.com/user-attachments/assets/20d92ee3-914d-422f-b065-240bafdc6be2)
 ![32876713403_aa60c7a9b6_o](https://github.com/user-attachments/assets/7373b1a2-008d-473a-90a7-8a8563f37f4a)
+![Basket-for-on-line-shop-1536x1483](https://github.com/user-attachments/assets/e4c9f148-b1b6-4842-afad-fcec9b6a0058)
+![beautiful-flower-bouquet-1](https://github.com/user-attachments/assets/9993f5bd-89ab-4c85-b54a-b310408788d0)
+![beautiful-flower-bouquet-4](https://github.com/user-attachments/assets/d7eff3e6-296f-433f-9163-7cf5114e1652)
+![beautiful-flower-bouquets-88](https://github.com/user-attachments/assets/20be480c-82f7-43ec-9213-1c5bdade3630)
